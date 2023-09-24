@@ -1,4 +1,4 @@
-# MY NFT PROFILE PICTURE
+# MY NFT PROFILE PICTURES
 
 - 0xmeylia (1).jpg
 - 0xmeylia (2).jpg
